@@ -1,4 +1,4 @@
-# International Baccalaureate Programme 💙🤍
+![ibo-logo](https://user-images.githubusercontent.com/19508013/170845675-b78f6886-9f58-4396-85db-20946c6ad70c.jpg)
 
 I was admitted into the International Baccalaureate Programme.
 
