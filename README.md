@@ -1,6 +1,8 @@
+![mrhs](https://user-images.githubusercontent.com/19508013/192880799-dd5e41f3-5c02-4701-ba0e-8acd2fc14a3a.jpeg)
+
 ![ibo-logo](https://user-images.githubusercontent.com/19508013/170845675-b78f6886-9f58-4396-85db-20946c6ad70c.jpg)
 
-I was admitted into the International Baccalaureate Programme.
+I was admitted into the International Baccalaureate Programme at Marvin Ridge High School.
 
 • [Shawna Tuli Essays](https://sites.google.com/site/litmagmav/documents)
 
